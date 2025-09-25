@@ -1,4 +1,4 @@
-# GitHub-Activity-
+# GitHub-Activity- Name and Fun Fact about yourself. 
 Group Activity
 
 Seif - I hate mangos, because they're too sweet.

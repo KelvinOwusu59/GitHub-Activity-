@@ -1,6 +1,8 @@
 # GitHub-Activity-
 Group Activity
 
+Seif - I hate mangos, because they're too sweet.
+
 Shelby - I refuse to eat radishes because they're bad.
 
 Peter Li
